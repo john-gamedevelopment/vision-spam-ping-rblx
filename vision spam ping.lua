@@ -5,12 +5,6 @@
 / /_/ / / /  __/  (__  ) /_/ /_/ / /  / /_/ / /_/ /  __/  / /_/ / / / / / /_  
 \__/_/ /_/\___/  /____/\__/\____/_/   \__,_/\__, /\___/   \__,_/_/ /_/_/\__/  
                                            /____/                             
-.gg/HAJYZ4WemA
-.gg/HAJYZ4WemA
-.gg/HAJYZ4WemA
-.gg/HAJYZ4WemA
-.gg/HAJYZ4WemA
-
 much love and enjoy <3 - john
 ]]--
 
